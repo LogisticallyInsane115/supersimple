@@ -1,6 +1,5 @@
 Find your companion in community, and you will find your companionship with God, Jesus Christ and the Holy Spirit. 
-        welcome to spiritual enlighenment Principles:
-
+        
         1.  Feel
         
         2.  Explore
